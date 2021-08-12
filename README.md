@@ -7,11 +7,17 @@
 
 ## Team members
 ●	Mohammed Alsamki (Team Leader)
+
 ●	Ahmad al anawsa
+
 ●	Belal Eloahi
+
 ●	Wissam abuaresh
+
 ●	Shaima Sawai
+
 ●	Abrar Alzubi
+
 
 
 
